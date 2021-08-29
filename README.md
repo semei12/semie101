@@ -1,2 +1,1 @@
-# Hello I'm Semei Kibumba
-I comme from the streets
+fuck all of u bitchz
