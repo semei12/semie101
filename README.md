@@ -1,2 +1,2 @@
-# semie101
-Knowing semei 
+# Hello I'm Semei Kibumba
+I comme from the streets
